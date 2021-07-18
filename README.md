@@ -1,4 +1,4 @@
-[5:07 PM, 7/18/2021] PRÄKÁẞH_ÇHÕWDÅRY✌️✌️❤️🥰😍: # SHAPEAI PYTHON AND MACHINE LEARNING BOOTCAMP
+# SHAPEAI PYTHON AND MACHINE LEARNING BOOTCAMP
 
 Hi I made this project during the 7 Days Free Bootcamp, conducted by <b> SHAPEAI
 
